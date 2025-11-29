@@ -1,2 +1,2 @@
-# parcial-1-p2-acn2bv-rios-robles
+# parcial-2-p2-acn2bv-rios-robles
 
